@@ -1,1 +1,1 @@
-# ASD - 2 semestr
+# ASD
